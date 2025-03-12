@@ -105,6 +105,14 @@ Ep 276:
 -hidden mist is still not defeated 
 -each side lost half of the force 
 
+Ep 277:  
+-kumara make good point that naruto cant carry every one hatred onto himself as he said its his roal to carry that  
+-too much flash back  
+-what kind of kid get rizzed by kid sasuka 
+-kid hinata still there for naruto  
+-its cool to see naruto use other jutsu other than rasengan and shadown clone  
+-the part i like naruto want to come for the hatred of nine tail rather than only his power and the longest person to stay with naruto  
+
 
 
 
