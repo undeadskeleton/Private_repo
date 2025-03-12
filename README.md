@@ -85,7 +85,17 @@ Ep 273:
 -tenten 2 sec screen time  
 -asumas fire style buring ass first add ash as somke screen and then ignite it this traps and add a finishing  
 -tenten got the kakuzu lighting puppet  
--choji being to kind he cant attack asuma  
+-choji being to kind he cant attack asuma   
+
+Ep 274:
+-inno helping choji to overcome his unwilligness to fight by mind tranfer to talk while fighting in choji body and shikamaru using shadow possession to guard ino  
+-why choji kindness is not a weakness  
+-choji finally able to fight against asuma and seal him by gaining the final form without the medicine    
+-naruto gets a hunch of the kinkaku and ginkaku and iruka confronts naruto by made up facts as the charkra of nine tails is a false end but naruto upon exiting the cave and using sage mode was able to get the picture that others are fighting and iruka finally tell him everything  
+-iruka tried binding naruto but fails  
+-bee and naruto breaks the defencive barrier set by bee village with bee first sending a baiju bomb and bee breaking the barieer and naruto pushing the bomb to not let the barirrir to heal fast enough but why does the bomb not brust read manga for this   
+
+
 
 
 
