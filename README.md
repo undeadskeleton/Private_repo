@@ -131,7 +131,15 @@ ep 283:
 
 Ep 296:  
 -naruto umderstand that madara cannot be reasoned with and he can sense white zetsu use tail hand and rasen barage to.deal with white zetsu and make multiple shadow clone to aid the battle  
--okaku old man confront 3rd kazakage,3rd raikaga,2nd and 3rd suchi kage 
+-okaku old man confront 3rd kazakage,3rd raikaga,2nd and 3rd suchi kage  
+
+Ep 297:  
+-reunion of son and father  
+-2nd suchi kaga is an awasome fella  
+-gara backstory about how gara lost his mother during child birth   
+-and the power that protect gara isnt shikaku but gara mother  
+-2nd suchi kage is still awasome   
+
 
 
 
