@@ -140,6 +140,13 @@ Ep 297:
 -and the power that protect gara isnt shikaku but gara mother  
 -2nd suchi kage is still awasome   
 
+Ep 298:  
+-itachi and naguto fights naruto and bee  
+-itachi learned that sasuka is still a failure  
+-itachi release sushi visual release planted on naruto to break the control of kabuto  
+-the crow planted on naruto was for sasuka to put him under gainjutsu to make him protect leaf village imstead he use it on itachi  
+
+
 
 
 
