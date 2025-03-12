@@ -8,8 +8,8 @@ In term of assets the akatshiki has : <br/>
 2.Sasuka team
 3.Reanimated soilders 
 
-In term of assets the 5 nation army has :__
-1.Naruto__
-2.Bee__
-3.All nation army__ 
-4.kagas__
+In term of assets the 5 nation army has :  
+1.Naruto  
+2.Bee  
+3.All nation army  
+4.kagas  
