@@ -120,6 +120,14 @@ Ep 278:
 -alliess cant tell friends and foe  
 
 
+ep 282:  
+-naruto sense the confusion i dont know how as he was not using sage mode with nine tails  
+-naruto face with 4th raikage  
+-bee flash back to why he is bee  
+
+ep 283:
+-naruto use flying raijutsu and will never use this again  
+-only naruto can sense white zetsu chakra in baiju mode i thought you need sage for that read manga for more info  
 
 
 
