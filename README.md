@@ -20,4 +20,13 @@ In term of assets the 5 nation army has :
 Ep 261:  
 -Anko Mitarashi got captured by kabuto  
 -Fight broke out between soilder of 5 nation army  
--The most epic speach by gara  
+-The most epic speach by gara    
+-So awasome to see different unit  
+--Sensory unit  
+--front line unit  
+--communication unit  
+--air unit  
+
+Ep 262:  
+-just kankuro unit got ambushed by sai brother and the anko mitarashi unit sent to infiltrate kabuto  
+-this episode has amazing use of jutsu and intelligence like use earth mobile to caught deidra by suprise and cutting sarori puppet thread by omori and kankuro attaching his thread with sasori thread to reel him in all while using earth mobile to life the gound 
