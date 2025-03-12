@@ -26,7 +26,7 @@ Ep 261:
 --front line unit  
 --communication unit  
 --air unit  
-
+ 
 Ep 262:  
 -just kankuro unit got ambushed by sai brother and the anko mitarashi unit sent to infiltrate kabuto  
 -this episode has amazing use of jutsu and intelligence like use earth mobile to caught deidra by suprise and cutting sarori puppet thread by omori and kankuro attaching his thread with sasori thread to reel him in all while using earth mobile to life the gound 
@@ -38,4 +38,13 @@ ep 263:
 -sai reason for his dull emotion is it weigh too much in the foundation line of duty and sai brother being sick and keep training with sai his brother was nothing other than beast  
 -fullfilling sai brother final wish to sai drawing book brought by sai brother whicch sai said it will be journel of their life sai brother freeded from the bind of kabuto  
 -sasori and daidara got capture by kankuro teams for being fucking idiots  
--sasori upon realizing that art of will never decay like him and can be passed down generation finally achieve salvation  
+-sasori upon realizing that art of will never decay like him and can be passed down generation finally achieve salvation
+
+ep 264:
+-naruto cannot transform to baiju form   
+-naruto is freaking battle genius use rasengan in baiju form draws tail beast chakra and adding compressing and rotation of rasengan resembles baiju bomb  
+-bee is genius with usage of skill and deep understanding and keen observation skill can tell what naruto was doing wrong when trying baiju bomb adding to much red chakra and lot less blue chakra and naruto being idiot  
+-soul that is sealed away cannot be used in reanimation jutsu like fourth soul that he traided for nine tails half chakra to be sealed on him same way third sealed 1 st and 2nd soul along with him so 1st to 4th is out of reanimation jutsu  
+-got intel that 1000 white zetsu travelling underground and use earth style to puke them out  
+
+ep 265:
