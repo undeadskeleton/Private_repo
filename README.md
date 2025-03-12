@@ -113,6 +113,14 @@ Ep 277:
 -its cool to see naruto use other jutsu other than rasengan and shadown clone  
 -the part i like naruto want to come for the hatred of nine tail rather than only his power and the longest person to stay with naruto  
 
+Ep 278:  
+-neji exhausted and bromance of itachi and naguto  
+-white zetsu inflitrate the medical camp using chakra clone  
+-neji cannot see and blame kiba dog for telling him to rest  
+-alliess cant tell friends and foe  
+
+
+
 
 
 
