@@ -125,7 +125,7 @@ ep 282:
 -naruto face with 4th raikage  
 -bee flash back to why he is bee  
 
-ep 283:
+ep 283:  
 -naruto use flying raijutsu and will never use this again  
 -only naruto can sense white zetsu chakra in baiju mode i thought you need sage for that read manga for more info  
 
