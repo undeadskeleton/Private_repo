@@ -64,6 +64,23 @@ ep 267:
 -neji and hinata father fighting and finally branch and main family pritect each other   
 -granny chiyo,danzo fight kunkuro
 
+ep 268:    
+
+
+ep 269:    
+
+ep 270:    
+
+ep 271:    
+
+ep 272:   
+-chased by granny chio,hanzo and kimimaro danzo release poison cloud anx caught upto kankuro unit along with daidara   
+-dosent explain how hanzo reanimation is release when defeated by samurai lord   
+-hanzo path when young was a man of conviction to unit 5 nation under one but repeated war on his land from 5 nation wrap his conviction 
+-hanzo ended his pife by cutting the poison pouch placed in him and resisting kabuto control finally trually showing his conviction   
+
+
+
 
 
 
