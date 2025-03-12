@@ -56,7 +56,15 @@ ep 265:
  ep 266:  
 -3rd rakaga,2nd suchi kaga and 3rd suchi kaga and 3rd sand kaga with white zetsu and two reanimated two nine tails (kinka ku and ginkagu) chakra with asura   
 -shikamaru father displaying his stratagic genius amd assisting 5 nation army leader to take decision   
--4th sutchi kaga join the war against 2nd sutchi kaga 
+-4th sutchi kaga join the war against 2nd sutchi kaga  
+
+ep 267:  
+-ep about ferul lord safe house and relocating with in interval with mistukage as guard while black zetsu follow them   
+-naruto d-day
+-neji and hinata father fighting and finally branch and main family pritect each other   
+-granny chiyo,danzo fight kunkuro
+
+
 
 
  
