@@ -96,6 +96,14 @@ Ep 274:
 -bee and naruto breaks the defencive barrier set by bee village with bee first sending a baiju bomb and bee breaking the barieer and naruto pushing the bomb to not let the barirrir to heal fast enough but why does the bomb not brust read manga for this   
 
 
+Ep 276:
+-black zetsu attack the feural lord and had to fight against mistukage and other and in this he sense naruto and bee chakra as they break free of the chakra barierrer  
+-tenten defeat anothor kakuzan puppet alone what is happening  
+-obito joins the battle and summon gido statue
+-they just left dan and didnt seal him 
+-gido retrieve the nine tail chakra from kinkaku and ginkaku
+-hidden mist is still not defeated 
+-each side lost half of the force 
 
 
 
