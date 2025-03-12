@@ -65,7 +65,7 @@ ep 267:
 -granny chiyo,danzo fight kunkuro
 
 ep 268:    
-
+  ino-sika-cho formation fight against ginkaku 
 
 ep 269:    
 
@@ -79,6 +79,13 @@ ep 272:
 -hanzo path when young was a man of conviction to unit 5 nation under one but repeated war on his land from 5 nation wrap his conviction 
 -hanzo ended his pife by cutting the poison pouch placed in him and resisting kabuto control finally trually showing his conviction   
 
+Ep 273:  
+-kakuzan again appera infront of inso-sika-cho   
+-legendary izumku kotatsu appear  
+-tenten 2 sec screen time  
+-asumas fire style buring ass first add ash as somke screen and then ignite it this traps and add a finishing  
+-tenten got the kakuzu lighting puppet  
+-choji being to kind he cant attack asuma  
 
 
 
