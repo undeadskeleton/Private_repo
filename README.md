@@ -54,4 +54,9 @@ ep 265:
 -gai being gai and motivating even when comrade dies  
 
  ep 266:  
+-3rd rakaga,2nd suchi kaga and 3rd suchi kaga and 3rd sand kaga with white zetsu and two reanimated two nine tails (kinka ku and ginkagu) chakra with asura   
+-shikamaru father displaying his stratagic genius amd assisting 5 nation army leader to take decision   
+-4th sutchi kaga join the war against 2nd sutchi kaga 
+
+
  
