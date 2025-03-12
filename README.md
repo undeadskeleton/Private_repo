@@ -129,6 +129,9 @@ ep 283:
 -naruto use flying raijutsu and will never use this again  
 -only naruto can sense white zetsu chakra in baiju mode i thought you need sage for that read manga for more info  
 
+Ep 296:  
+-naruto umderstand that madara cannot be reasoned with and he can sense white zetsu use tail hand and rasen barage to.deal with white zetsu and make multiple shadow clone to aid the battle  
+-okaku old man confront 3rd kazakage,3rd raikaga,2nd and 3rd suchi kage 
 
 
 
