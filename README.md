@@ -48,3 +48,10 @@ ep 264:
 -got intel that 1000 white zetsu travelling underground and use earth style to puke them out  
 
 ep 265:
+-Fight with zabuka and haku with kakashi
+-zabuza just explain reanimation to haku and act suprise when got intel from kakashi he is under reanimation jutsu 
+-naruto flashback to zabuka talk to no jutsu  
+-gai being gai and motivating even when comrade dies  
+
+ ep 266:  
+ 
