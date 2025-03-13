@@ -159,7 +159,7 @@ Ep 300:
 -oniki fight 1st mistukage and was unable to see him due to his camouflage jitsu so use stone clone to increase the number 
 -2nd mistukage even after expaining the team that he used shadown and genjutsu the soliders was unable to find his real clam to destroy it and fails 
 -gara joining with oniki was able to find the 1st miatukage but they weren too slow and naruto even with surprise attack 1st was able to detect that but quick thinking gara with gara they were able to land a rasengane full rotation to knock 1st to ground and oniki use stone bolder to stop his movement and seal him 
--gara and oniki join the 2nd mistukage fight and gara was distracted while usig his sand to find the clamp and was on defence to save from 2nd bubble attack 
+-gara and oniki join the 2nd mistukage fight and gara was distracted while usig his sand to find the clamp and was on defence to save from 2nd bubble attack  upoj finding the clamp oniki was out of juice but uses earth bolder to make stone fist heavier but got handicap with bavk pain abd got hit by water gun of mistukage 
 
 
 
