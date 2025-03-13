@@ -146,6 +146,12 @@ Ep 298:
 -itachi release sushi visual release planted on naruto to break the control of kabuto  
 -the crow planted on naruto was for sasuka to put him under gainjutsu to make him protect leaf village imstead he use it on itachi  
 
+Ep 299:  
+-naruto bee and itachi fought with a full powered naguto who waz able to incapacitate both naruto and bee but was helped by itachi  
+-itachi being itachi Al ays looks for weakness in a jutsu when planatory devastration was used itachi figure out that the center draws everything so he suggest to attack with their strongest jutsu and it will just draw to center to destroy the gravitational core  
+-and nagoto got impaled by itachi blade and got sealed how was nagato not detect the balde coming i cannot understand even with renagan kabuto suggest its because naguto movement was sloopy dosent seems to me ilit would had been better if insteadof smoke it threw rumbles and then naguto got impaled.
+-still naruto was stubborn about ending the qar by himself and itachi has a good point that just because naruto got power now he should not cast other who want to help aside and take the responsibility himself tge village people only view him as hero cause them see him like them now and naruto understands them
+
 
 
 
