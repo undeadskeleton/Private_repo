@@ -150,7 +150,10 @@ Ep 299:
 -naruto bee and itachi fought with a full powered naguto who waz able to incapacitate both naruto and bee but was helped by itachi  
 -itachi being itachi Al ays looks for weakness in a jutsu when planatory devastration was used itachi figure out that the center draws everything so he suggest to attack with their strongest jutsu and it will just draw to center to destroy the gravitational core  
 -and nagoto got impaled by itachi blade and got sealed how was nagato not detect the balde coming i cannot understand even with renagan kabuto suggest its because naguto movement was sloopy dosent seems to me ilit would had been better if insteadof smoke it threw rumbles and then naguto got impaled.
--still naruto was stubborn about ending the qar by himself and itachi has a good point that just because naruto got power now he should not cast other who want to help aside and take the responsibility himself tge village people only view him as hero cause them see him like them now and naruto understands them
+-still naruto was stubborn about ending the qar by himself and itachi has a good point that just because naruto got power now he should not cast other who want to help aside and take the responsibility himself tge village people only view him as hero cause them see him like them now and naruto understands them  if naruto continues to take all responsibility alone he will end up like madara   
+-itachi suggest that he has the best chance of releasing the reanimation jutsu and naruto must focus on fighting madara   
+-itachi also shows growth that he was wrong for handling sasuka alone and entrust naruto who has the same personality as sisui he has better chance at persayuing sasuka 
+-i still dont understand being a battle genius why doesnt naruto leave a clone or two to atleaat use sage mode to absorbe chakra to keep his chakra all time high so that when kura is drawing naruto chakra when naruto uses kaurama his own chakra wont get low and die 
 
 
 
