@@ -168,6 +168,12 @@ Ep 301:
 -but naruto figure it that raikage can only be damaged by his own spear so  naruto dodge raikage attack and use sage mode for faster dection of raikage attack and react faster and  uses rasengen on raikage hand to redirect his spear attack to himself and damaged itself enough fot the sealing team to work  
 naruto started to show his battle observation and battle genius
 
+Ep 302:  
+-gara was able to switch oniki with a sand clone when oniki broke his back when destroying the gaint clam  
+-failed to seal 2nd misukage even with gaint sand coffin as misukage started using hiw explosion clone jutsu which store oil inside it and started expanding more it move and create a bomb  
+-gara was able to mix gold with sand and heat the sand when the clone attack and was able it make it absorbe the gold to make the clone movement slugish and heat the sand to turn the clone mist into a gold statue like glass and was able to seal the mistukage with more sand coffin  
+-but 1st mistukage was able to make a clone of himself  and escape the sealing when naruto attack with final rotation jutsu when it hit 1st  
+-while the problem with not able to identify friend to foes cause of white zetsu is not solved and the seven swordman of the mist is still not sealed totally  
 
 
 
