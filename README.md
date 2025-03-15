@@ -175,6 +175,20 @@ Ep 302:
 -but 1st mistukage was able to make a clone of himself  and escape the sealing when naruto attack with final rotation jutsu when it hit 1st  
 -while the problem with not able to identify friend to foes cause of white zetsu is not solved and the seven swordman of the mist is still not sealed totally  
 
+Ep 303:  
+-only the ino-sika-cho was able to win the fight against their enemy,the medical team cannot take any more injures,kakashi,guy,sai,rock lee still fighting the seven swordman of the mist,neji,hinata kiba still fight amount themselves,samurai fight against the bone shibone and granny and madara joining with the jinchuriki pains  
+-naruto arive at shikamaru side and identify white zetsu,arraived at sakura medical camp and deal with zetsu,got to neji and hinata and identify zetsu   
+-kabuto summon real madara   
+-naruto join every battle and assist with white zetsu problem   
+-the famous madara beatdown   
+-i guess naruto is still dumb that he cannot use his shadow to use sage mode to replenish this chakra   
+-it was wrong to use water style against fire style madara as it create steam and madara uses this steam as smoke screen and use more fire style to attack   
+-always love the use of earth style mobile core to move the target to catch them offguard and naruto uses massive rasengan to hit madara but susanu protects madara   
+-so i was wrong about naruto not using sage mode he used it but it takes time but still using a clone to replenish chakra was a good idea but the clone has to be released to gain the chakra so it seem a bit drawback  
+-madara was able to awakane rinnagan and counter rasengan surikan   
+-madara summon the planatery bolder and everybody loss hope and onoki try to make the bolder lighter with assist of gara sand to stop the bolder with giving everything even over his own limit but the second bolder comes and they all fall with heavy injury    
+-madara can now use wood style 
+
 
 
 
