@@ -161,6 +161,12 @@ Ep 300:
 -gara joining with oniki was able to find the 1st miatukage but they weren too slow and naruto even with surprise attack 1st was able to detect that but quick thinking gara with gara they were able to land a rasengane full rotation to knock 1st to ground and oniki use stone bolder to stop his movement and seal him 
 -gara and oniki join the 2nd mistukage fight and gara was distracted while usig his sand to find the clamp and was on defence to save from 2nd bubble attack  upoj finding the clamp oniki was out of juice but uses earth bolder to make stone fist heavier but got handicap with bavk pain abd got hit by water gun of mistukage 
 
+Ep 301:  
+-Raikaga become too fast for solider to catch him but being too dureable he was not captured  
+-naruto hit him but constantly catching the rasensuriken when raikaga dodge it and it seems kabuto keep getting better at handling reanimation when their emotion is switch off.  
+-raikage start using his no of finger jutsu where every less finger he use his speed keep getting faster  
+-but naruto figure it that raikage can only be damaged by his own spear so  naruto dodge raikage attack and use sage mode for faster dection of raikage attack and react faster and  uses rasengen on raikage hand to redirect his spear attack to himself and damaged itself enough fot the sealing team to work  
+naruto started to show his battle observation and battle genius
 
 
 
