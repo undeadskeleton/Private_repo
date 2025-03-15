@@ -195,7 +195,9 @@ Ep 323:
 -raikaga and tsunada along with 4th mistukage join the batttle with 5 kage fighting side by side  
 -madara can now use wood style   
 -5 kage cordination was good enough to break the madara susanu 
--
+-Naruto still stubborn to do all alone but finally presueded to leave madara to them and focus  on tobi  
+Ep 324:  
+-Backstory of 6 tails 
 
 
 
