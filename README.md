@@ -196,8 +196,16 @@ Ep 323:
 -madara can now use wood style   
 -5 kage cordination was good enough to break the madara susanu 
 -Naruto still stubborn to do all alone but finally presueded to leave madara to them and focus  on tobi  
+Ep 325:  
+-fighting the new pain jinchuriki with sharingan and reagan they can cordinate too well to take the black rods out of the junchuriki bee clear the forest to have more vision and shikamanru team able to cut down the no of white zetsu,kakashi was able to seal 6 swordman only suigo brother remain and hinta neji was were able to clear white zetsu  
+-tailbeast effortlessly defeat naruto and bee  
+-kakashi and guy were able to come in time and save naruto  
+
 Ep 324:  
--Backstory of 6 tails 
+-Backstory of 6 tails  
+
+Ep 326:  
+-
 
 
 
