@@ -187,7 +187,15 @@ Ep 303:
 -so i was wrong about naruto not using sage mode he used it but it takes time but still using a clone to replenish chakra was a good idea but the clone has to be released to gain the chakra so it seem a bit drawback  
 -madara was able to awakane rinnagan and counter rasengan surikan   
 -madara summon the planatery bolder and everybody loss hope and onoki try to make the bolder lighter with assist of gara sand to stop the bolder with giving everything even over his own limit but the second bolder comes and they all fall with heavy injury    
--madara can now use wood style 
+
+Ep 323:  
+-kuruma finally decided to share his chakra with naruto and use rasengan barage to counter deep wood rather than rasensuriken  
+-oniki was able to learn that just fighting amoung them not only create more pain and they grew farther away form peace  but thats why oniki was able to have the will to fight madara even with highly injure  
+-black zetsu was defeated cause of choziro has absorbe chakra to make blade bigger  
+-raikaga and tsunada along with 4th mistukage join the batttle with 5 kage fighting side by side  
+-madara can now use wood style   
+-5 kage cordination was good enough to break the madara susanu 
+-
 
 
 
